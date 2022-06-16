@@ -10,4 +10,4 @@ Quero demonstrar toda a minha *dedicação* e *empenho* sobre os conhecimentos a
 
 ## 📝 Ass
 
-Por Daniel de Paula Caruso 🤓 [Entre em contato!](https://linkedin.com/in/daniel-paula-caruso-6b240215b)
+Por Daniel de Paula Caruso 🤓 [Entre em contato!](linkedin.com/in/daniel-paula-caruso)
